@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kid2kidtech
+- 👀 I’m interested in the Raspberry Pi mainly. I also like electronics in genaral.
